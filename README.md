@@ -1,1 +1,0 @@
-# 023-RPS-Guided-and-Independent-Practice
